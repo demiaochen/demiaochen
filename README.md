@@ -1,2 +1,2 @@
 - 🔗 Website: https://demiao.cc
-- 📫 E-mail: demiao@outlook.sg
+- 📫 E-mail: demiao.cc@gmail.com
